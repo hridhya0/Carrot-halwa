@@ -1,0 +1,1 @@
+Grate the carrots. Pour 1 teaspoon of ghee into a sausepan and add the grated carrots.Fry them in medium flame until the raw smell is gone. After 3-4 min of frying add required sugar for sweetness. Then fry it until the sugar melts. The add milk. They carrot should be soked by the milk. Keep on stiring until the milk evaporates. Then add 2 cardamom. Serve hot or cool.
